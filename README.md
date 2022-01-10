@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MohitBee
 - 👀 I’m interested in ...traveling, settling on a mountain or near a beach, to have a regular stream of money, a pet dog and my personal vegetable garden.
-- 🌱 I’m currently learning ... project management and how to be selfish and not care about anyone but me.
+- 🌱 I’m currently learning ... project management and how to be selfish and not care much about people and society.
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ... Goodluck!
 
